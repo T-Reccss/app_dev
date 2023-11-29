@@ -1,6 +1,6 @@
 # My Favorite Series: Loki
 
-Breaking Bad is an American television series that follows the transformation of Walter White from a high school chemistry teacher to a ruthless methamphetamine manufacturer. Here are some key points about the series:
+Loki is an American television series that follows Loki and his friends in a amazing stories
 
 - **Characters:**
   - Loki
