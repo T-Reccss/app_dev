@@ -1,6 +1,6 @@
 # My Favorite Series: Loki
 
-Loki is an American television series that follows Loki and his friends in a amazing stories
+Loki is an American television series that follows Loki and his friends in a amazing stories.
 
 - **Characters:**
   - Loki
